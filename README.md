@@ -42,7 +42,7 @@
 
 ### 🌐 Со мной можно связаться  
 
-📫 **Telegram:** [@hoosya](https://t.me/hoosya)  
+📫 **Telegram:** [@hoosya](https://t.me/admtrue251)  
 🌍 **Сайт / портфолио: [hoosya-dev.ru](https://hoosya-dev.ru)
 
 ---
